@@ -34,7 +34,7 @@ Any usage, extraction, or redistribution of that avatar from my live website is 
 
 ---
 
-![Protfolio-Preview](https://github.com/user-attachments/assets/a6933ba0-9875-4f64-a5fa-116a3700805b)
+![Protfolio-Preview](https://github.com/user-attachments/assets/f38ef8b1-9908-44e7-92df-f17db848f7d7)
 
 ---
 
